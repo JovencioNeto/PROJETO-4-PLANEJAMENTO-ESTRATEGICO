@@ -43,5 +43,3 @@ Ser referência no mercado de perfumes e cuidados corporais, destacando-se pela 
 ## 🚀 Como acessar o protótipo do site?  
 
 🔗 **Acesse aqui: https://wnbessences.my.canva.site
-
----
